@@ -1,0 +1,1 @@
+lue minut ensin
